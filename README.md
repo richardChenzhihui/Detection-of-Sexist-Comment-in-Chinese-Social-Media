@@ -5,3 +5,8 @@ Sexist content on social media has been a widely discussed public issue, but the
 ![幻灯片11](https://user-images.githubusercontent.com/61858501/224736557-33392a13-7c38-4b66-addc-1125dac3d3d2.PNG)
 ![幻灯片10](https://user-images.githubusercontent.com/61858501/224736566-ac025781-2e97-4bd9-a5e5-de749d4a22cc.PNG)
 ![幻灯片12](https://user-images.githubusercontent.com/61858501/224736597-c27c5c39-59f1-447c-9b69-b9b9caa28588.PNG)
+![幻灯片13](https://user-images.githubusercontent.com/61858501/224742811-2a6ba436-c13c-4f05-b8ff-2bcdb5e4ad59.PNG)
+![幻灯片20](https://user-images.githubusercontent.com/61858501/224742919-c1d3b2ec-a7fc-4984-a05f-2a944a72bcc3.PNG)
+![幻灯片22](https://user-images.githubusercontent.com/61858501/224742937-1850aad5-4a36-43d5-949e-7c48dbaafda0.PNG)
+![幻灯片24](https://user-images.githubusercontent.com/61858501/224742979-eeaa2ad1-c167-46f2-8ec5-6deb88c8a7a7.PNG)
+![幻灯片31](https://user-images.githubusercontent.com/61858501/224743092-ad921d15-70a9-4d4e-ad7b-a8b1bb62b7cf.PNG)
